@@ -1,0 +1,2 @@
+# premium-encaustic-fuse-001-encaustic-fusing-heat-gun-la
+Struggling to track your encaustic layers, heat gun temperatures, and fusing experiments without losing your creative flow? The Encaustic Fusing &amp; Heat Gun Layer Craft Lab is the all-in-one Notion template designed specifically for encaustic artists who need organized, accessible documentation of every layer, heat setting, and technique variation.
